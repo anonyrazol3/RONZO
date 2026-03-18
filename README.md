@@ -38,3 +38,4 @@ Who pretend
 They care
 And that silence
 Its not weakness
+Its power 
