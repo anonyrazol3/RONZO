@@ -24,3 +24,4 @@ To navigate alone
 They becone 
 Their own therapist
 Their own motivator
+Their own protector
