@@ -44,3 +44,4 @@ Its growth
 So if you know
 A man like that 
 Dont assume
+Hes cold or heartless
