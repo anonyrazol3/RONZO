@@ -30,3 +30,4 @@ They dont seek revenge
 They just distance themselves
 And FOCUS!!!
 On Peace
+They dont fear
