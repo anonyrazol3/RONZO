@@ -41,3 +41,4 @@ Its not weakness
 Its power 
 Its restraint
 Its growth
+So if you know
