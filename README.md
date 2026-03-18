@@ -35,3 +35,4 @@ Being alone
 They fear wasting
 Time on people
 Who pretend 
+To care
