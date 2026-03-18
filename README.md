@@ -23,3 +23,4 @@ THey have learnt
 To navigate alone
 They becone 
 Their own therapist
+Their own motivator
