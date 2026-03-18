@@ -50,3 +50,4 @@ Battles you will never see
 Hes just learned the hard way
 That sometimes the strongest thing
 You can do is walk away
+And heal in peace
