@@ -25,4 +25,5 @@ They becone
 Their own therapist
 Their own motivator
 Their own protector
-they dont lash out
+They dont lash out
+They dont seek revenge
