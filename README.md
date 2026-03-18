@@ -19,3 +19,4 @@ Everyday
 with a calm face
 But inside
 There is a storm
+THey have learnt 
