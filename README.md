@@ -6,3 +6,4 @@ They seen too much
 Felt too deeply
 Given too many chances
 That led to disappointment
+So they stop talking
