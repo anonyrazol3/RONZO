@@ -27,3 +27,4 @@ Their own motivator
 Their own protector
 They dont lash out
 They dont seek revenge
+They just distance themselves
