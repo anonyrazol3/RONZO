@@ -39,3 +39,4 @@ They care
 And that silence
 Its not weakness
 Its power 
+Its restraint
