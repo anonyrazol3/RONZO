@@ -32,3 +32,4 @@ And FOCUS!!!
 On Peace
 They dont fear
 Being alone
+They fear wasting
