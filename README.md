@@ -31,3 +31,4 @@ They just distance themselves
 And FOCUS!!!
 On Peace
 They dont fear
+Being alone
