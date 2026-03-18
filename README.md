@@ -4,3 +4,4 @@ Be Consistent
 Some men go quite
 They seen too much
 Felt too deeply
+Given too many chances
