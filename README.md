@@ -36,3 +36,4 @@ They fear wasting
 Time on people
 Who pretend 
 They care
+And that silence
