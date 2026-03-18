@@ -10,3 +10,4 @@ So they stop talking
 About their pain
 They just carry it
 Not because they want to suffer in silent
+Because they no longer believe
